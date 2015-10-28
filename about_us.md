@@ -1,6 +1,6 @@
-Beth Adele Long
-Born: Philadelphia, PA
-Currently Live: in Northwest
+Laurie Brown
+Born: San Juan, PR
+Live in: NE Portland
 
 
 Michal Naka
